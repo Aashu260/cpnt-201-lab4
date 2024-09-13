@@ -131,6 +131,23 @@ Instructions:
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
 
+### Pulao
+
+Ingredients:
+
+- Leftover rice
+- plus a couple of eggs
+- baby carrots
+- peas
+- soy sauce is all you need
+- Garnish with sliced green onions
+
+Instructions:
+
+1. Combine 4 cups of water and 2 cups of white rice in a saucepan bring to a boil.
+2. Reduce the heat, then cover and simmer until the rice is tender and the water has been absorbed, 20 to 25 minutes.
+3. Remove from the heat and let cool to room temperature.
+
 ### Banana bread
 
 Ingredients:
