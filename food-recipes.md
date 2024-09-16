@@ -120,6 +120,7 @@ Ingredients:
 - 10 eggs
 - 2 tsp vanilla extract
 - 4 cups semisweet chocolate chips
+- Nuts (optional)
 
 Instructions:
 
